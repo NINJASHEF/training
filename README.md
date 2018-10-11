@@ -1,0 +1,2 @@
+# training
+We shall prosper 
